@@ -38,3 +38,4 @@ I yume with the POSTAL Dude from POSTAL (don't really know which game, I just re
 
 ![](https://file.garden/alGl3cPRpgjgSD40/image_2026-07-10_195559223.png)
 
+![strawpage](https://dor-fic.straw.page) ♪ ![prn.cc](https://pronouns.cc/@DORfic) ♪ ![ata](https://dorfic.atabook.org/)
