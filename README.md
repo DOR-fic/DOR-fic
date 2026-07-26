@@ -1,3 +1,7 @@
+PLEASE read this. Copy town is real. https://docs.google.com/document/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc/edit?tab=t.0#heading=h.2ruqj9cj7dwn
+
+
+
 ![](https://file.garden/alGl3cPRpgjgSD40/image_2026-07-10_192041524.png)
 
  ${\textsf{\color{#E97D01}DORfic or Red}}$ 　 　![](https://file.garden/alGl3cPRpgjgSD40/image_2026-07-10_191358946.png)   　 　 ${\textsf{\color{#E97D01}He / Void}}$
