@@ -25,7 +25,8 @@ I yume with the POSTAL Dude from POSTAL (don't really know which game, I just re
 
 [strawpage](https://dor-fic.straw.page)   ♪   [prn.cc](https://pronouns.cc/@DORfic)   ♪   [ata](https://dorfic.atabook.org/) ![](https://file.garden/alGl3cPRpgjgSD40/image_2026-07-10_200829278.png)
 
-![](https://file.garden/alGl3cPRpgjgSD40/image_2026-07-26_191222597.png) ![](https://file.garden/alGl3cPRpgjgSD40/image_2026-07-26_191326292.png)
+
+![](https://file.garden/alGl3cPRpgjgSD40/image_2026-07-26_191222597.png)        ![](https://file.garden/alGl3cPRpgjgSD40/image_2026-07-26_191326292.png)
 
 
 ![](https://file.garden/alGl3cPRpgjgSD40/image_2026-07-26_190655357.png)
