@@ -19,7 +19,7 @@ I yume with the POSTAL Dude from POSTAL (don't really know which game, I just re
 
 ![](https://file.garden/alGl3cPRpgjgSD40/mafiosostamp.webp) < ${\textsf{\color{#FCAC23}I love my husband sm}}$ (·ω·)
 
-![](https://file.garden/alGl3cPRpgjgSD40/image_2026-07-26_191018566.png)
+![](https://file.garden/alGl3cPRpgjgSD40/image_2026-07-26_191018566.png) ![](https://file.garden/alGl3cPRpgjgSD40/image_2026-07-26_191018566.png)
  
  ${\textsf{\color{#E97D01}links}}$
 
