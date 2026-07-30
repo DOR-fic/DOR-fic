@@ -7,7 +7,7 @@ PLEASE read this. Copy town is real. https://docs.google.com/document/d/1Zw251H_
 
 ${\textsf{\color{#B53302}cudcomf and iwc}}$ 　 𐂯  　 ${\textsf{\color{#B53302}Metal Sonic and DORfic kin !}}$
 
-${\textsf{\color{#FCAC23}friends (´▽｀):}}$ @BubbleTroubled , @Its74j , @ikilledthosekidsin1985 , @SleeplessDave1rl , @tirgery123 , @crushdow , @On-the-Heights , @IHASAFACE-LULZ , @mizisugar !
+${\textsf{\color{#FCAC23}friends (´▽｀):}}$ @Washingtonsrighthandman / axelyoboy , @Its74j , @ikilledthosekidsin1985 , @SleeplessDave1rl , @tirgery123 , @crushdow , @On-the-Heights , @IHASAFACE-LULZ , @mizisugar , N1TEB0I !
 
 ![](https://file.garden/alGl3cPRpgjgSD40/image_2026-07-26_191018566.png) ![](https://file.garden/alGl3cPRpgjgSD40/image_2026-07-26_191018566.png) ![](https://file.garden/alGl3cPRpgjgSD40/image_2026-07-26_191018566.png) ![](https://file.garden/alGl3cPRpgjgSD40/image_2026-07-26_191018566.png)
 
