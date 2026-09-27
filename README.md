@@ -27,7 +27,7 @@ I yume with the POSTAL Dude from POSTAL (don't really know which game, I just re
 
 [strawpage](https://dor-fic.straw.page)   ♪   [prn.cc](https://pronouns.cc/@DORfic)   ♪   [ata](https://dorfic.atabook.org/)   ♪   [shared acc](https://github.com/maskedandhooded) ![](https://file.garden/alGl3cPRpgjgSD40/image_2026-07-10_200829278.png)
 
-Thank you for nominating me for [title town's Glitchy Red](https://github.com/title-town) , [pt-fashion's coolest ponies](https://github.com/pt-fashion) , [Kaotown's no.1 Metal Sonic Fan!!](https://github.com/kaotown) & [Mafioso's lover !!](https://github.com/pt-medals2) *!!* ◝(ᵔᗜᵔ)◜ 
+Thank you for nominating me for [title town's Glitchy Red](https://github.com/title-town) , [pt-fashion's coolest ponies](https://github.com/pt-fashion) , [Kaotown's no.1 Metal Sonic Fan!!](https://github.com/kaotown) , [pt-heavyfictkin's Metal Sonic](https://github.com/pt-heavyfictkin) & [Mafioso's lover !!](https://github.com/pt-medals2) *!!* ◝(ᵔᗜᵔ)◜ 
 
 
 ![](https://file.garden/alGl3cPRpgjgSD40/image_2026-07-26_191222597.png)        ![](https://file.garden/alGl3cPRpgjgSD40/image_2026-07-26_191326292.png)
