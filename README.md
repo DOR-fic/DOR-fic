@@ -2,12 +2,14 @@
 
 <img width="150" src="https://file.garden/alGl3cPRpgjgSD40/image_2026-10-29_193539484.png" alt="hm?" align="right" width="200" />
 
-ts a wip. old one is private ok
+work in progress ｡⠀🍊 ꒱꒱
+
+﹐ you r my hero !! ⸝⸝
 
 aw arent i so cute in that emote
 
 <details>
-  <summary>some extra smuck i will have here for now</summary>
+  <summary>rewards i am aware of having</summary>
   
-  I like oranges
+  [title town's Glitchy Red](https://github.com/title-town) , [pt-fashion's coolest ponies](https://github.com/pt-fashion) , [Kaotown's no.1 Metal Sonic Fan!!](https://github.com/kaotown) , [pt-heavyfictkin's Metal Sonic](https://github.com/pt-heavyfictkin) ,[music town's Infinite, and Hero](https://github.com/music-town) & [Mafioso's lover !!](https://github.com/pt-medals2)
 </details>
