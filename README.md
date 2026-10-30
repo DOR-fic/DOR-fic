@@ -6,7 +6,7 @@ work in progress ｡⠀🍊 ꒱꒱
 
 ﹐ you r my hero !! ⸝⸝
 
-aw arent i so cute in that emote
+﹐Metal Sonic , Simon Henrikkson, DOR-fic *IRL* ⎯ ♡
 
 <details>
   <summary>rewards i am aware of having</summary>
