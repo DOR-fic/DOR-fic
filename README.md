@@ -5,3 +5,9 @@
 ts a wip. old one is private ok
 
 aw arent i so cute in that emote
+
+<details>
+  <summary>some extra smuck i will have here for now</summary>
+  
+  I like oranges
+</details>
