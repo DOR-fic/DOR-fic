@@ -10,6 +10,8 @@ work in progress ｡⠀🍊 ꒱꒱
 
 keeping oomfs safe so i dont lose them all: @Washingtonsrighthandman & @BENEVOLENTDAY @ikilledthosekidsin1985 , @SleeplessDave1rl , @tirgery123 , @crushdow , @On-the-Heights , @IHASAFACE-LULZ , @mizisugar, @N1TEB0I , @horroryaoi !
 
+[rentry](https://rentry.co/dorrfic)  ![](https://file.garden/alGl3cPRpgjgSD40/image_2026-07-10_200829278.png)  [prn.cc](https://pronouns.cc/@DORfic)  ![](https://file.garden/alGl3cPRpgjgSD40/image_2026-07-10_200829278.png)  [straw](https://straw.page/draw)  ![](https://file.garden/alGl3cPRpgjgSD40/image_2026-07-10_200829278.png)  [carrd](https://dor-fic.carrd.co)
+
 <details>
   <summary>rewards i am aware of having</summary>
   
