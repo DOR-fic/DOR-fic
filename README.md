@@ -7,8 +7,8 @@ work in progress ｡⠀🍊 ꒱꒱
 ﹐ you r my hero !! ⸝⸝
 
 ﹐Metal Sonic , Simon Henrikkson, DOR-fic *IRL* ⎯ ♡
-
-[rentry](https://rentry.co/dorrfic)    [prn.cc](https://pronouns.cc/@DORfic)    [straw](https://straw.page/draw)    [carrd](https://dor-fic.carrd.co) ![](https://file.garden/alGl3cPRpgjgSD40/image_2026-07-10_200829278.png) [ata](https://dorfic.atabook.org/)
+ 
+[rentry](https://rentry.co/dorrfic)    [prn.cc](https://pronouns.cc/@DORfic)    [straw](https://straw.page/draw)    [carrd](https://dor-fic.carrd.co) [ata](https://dorfic.atabook.org/)
 
 <details>
   <summary>rewards i am aware of having</summary>
