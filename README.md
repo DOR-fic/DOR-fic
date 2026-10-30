@@ -7,6 +7,8 @@ work in progress ｡⠀🍊 ꒱꒱
 ﹐ you r my hero !! ⸝⸝
 
 ﹐Metal Sonic , Simon Henrikkson, DOR-fic *IRL* ⎯ ♡
+
+fictorose , yumeshipper! Mafioso (FS/DG) , POSTAL Dude , Jeff the Killer > 𓈒  𓏼♡ ۟
  
 [rentry](https://rentry.co/dorrfic)    [prn.cc](https://pronouns.cc/@DORfic)    [straw](https://straw.page/draw)    [carrd](https://dor-fic.carrd.co) [ata](https://dorfic.atabook.org/)
 
