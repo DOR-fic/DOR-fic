@@ -8,6 +8,8 @@ work in progress ｡⠀🍊 ꒱꒱
 
 ﹐Metal Sonic , Simon Henrikkson, DOR-fic *IRL* ⎯ ♡
 
+keeping oomfs safe so i dont lose them all: @Washingtonsrighthandman & @BENEVOLENTDAY @ikilledthosekidsin1985 , @SleeplessDave1rl , @tirgery123 , @crushdow , @On-the-Heights , @IHASAFACE-LULZ , @mizisugar, @N1TEB0I , @horroryaoi !
+
 <details>
   <summary>rewards i am aware of having</summary>
   
