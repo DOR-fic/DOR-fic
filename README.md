@@ -10,7 +10,7 @@ work in progress ｡⠀🍊 ꒱꒱
 
 *fictorose* , yumeshipper! *Mafioso* (FS/DG) , POSTAL Dude , Jeff the Killer > 𓈒  𓏼♡ ۟
  
-[rentry](https://rentry.co/dorrfic)    [prn.cc](https://pronouns.cc/@DORfic)    [straw](https://straw.page/draw)    [carrd](https://dor-fic.carrd.co) [ata](https://dorfic.atabook.org/)
+[rentry](https://rentry.co/dorrfic)    [prn.cc](https://pronouns.cc/@DORfic)    [straw](https://dor-fic.straw.page)    [carrd](https://dor-fic.carrd.co) [ata](https://dorfic.atabook.org/)
 
 <details>
   <summary>rewards i am aware of having</summary>
